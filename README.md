@@ -1,4 +1,6 @@
-# might not work 
+# dont use this
+get it from <a href=https://minesense.pub/download/>https://minesense.pub/download/</a> instead
+
 # exhi-crack-22
 Fixed version of the UltraPanda Exhibition crack
 <br>
